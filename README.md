@@ -1,4 +1,4 @@
 TweetOntoSense
 ==============
 
-Write us at the following email address for further details: lcotfas at gmail .com
+Please contact us at the following email address for further details: liviu.cotfas at ase .ro
